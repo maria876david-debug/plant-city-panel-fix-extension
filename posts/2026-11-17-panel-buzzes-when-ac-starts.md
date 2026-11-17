@@ -1,0 +1,3 @@
+# Your Panel Buzzes When the AC Starts — What That Sound Means
+
+A buzzing sound from your electrical panel when the air conditioning kicks in is not normal, and it is not something to ignore. The usual causes are a loose breaker, a breaker working near its limit, or a connection that has loosened over years of heating and cooling. Any of those can turn into heat, and heat in a panel is how electrical fires start. What you should do: do not open the panel yourself, do not keep resetting a tripping breaker, and call a licensed electrician to check it the same day. A buzzing panel is your house warning you early — listen to it. More on panel warning signs: https://plantcitypanelfix.com
